@@ -1,1 +1,1 @@
-Entonces el se fue y todo temrino bien melo bien melo
+Entonces el se fue y todo termino bien melo bien melo
