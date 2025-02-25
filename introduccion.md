@@ -1,0 +1,1 @@
+Había una vez un reino en una isla rodeada por una espesa niebla que nunca se disipaba. Los habitantes vivían en paz, protegidos por aquella bruma misteriosa que los mantenía a salvo del mundo exterior. Pero la niebla también guardaba un secreto: nadie que entraba en ella volvía jamás.
