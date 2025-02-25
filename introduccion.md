@@ -1,1 +1,5 @@
 Había una vez un reino en una isla rodeada por una espesa niebla que nunca se disipaba. Los habitantes vivían en paz, protegidos por aquella bruma misteriosa que los mantenía a salvo del mundo exterior. Pero la niebla también guardaba un secreto: nadie que entraba en ella volvía jamás.
+
+A lo largo de generaciones, los habitantes del reino aprendieron a respetar la niebla, viéndola como un escudo sagrado que los protegía de peligros desconocidos. Sin embargo, también era un límite infranqueable, una frontera envuelta en misterio y temor.
+
+Los ancianos contaban historias sobre viajeros imprudentes que se aventuraban en la bruma y nunca regresaban. Algunos decían que la niebla devoraba sus almas, otros aseguraban que los llevaba a un mundo perdido, pero nadie sabía la verdad. Por eso, el primer mandamiento del reino era claro: Nunca cruzarás la niebla.
